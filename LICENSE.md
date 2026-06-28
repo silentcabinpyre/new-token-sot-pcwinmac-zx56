@@ -1,4 +1,4 @@
-# 
+# Custom new token sniper bot presets for Mac OS | Native new token sniper bot presets for PC Windows. Featuring token approval check and blockchain indexing — optimized for maximum performance on every platform.
 
 
 
